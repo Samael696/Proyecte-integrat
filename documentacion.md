@@ -7,8 +7,14 @@
 
 ![](https://github.com/Samael696/Proyecte-integrat/blob/main/Captura%20de%20pantalla%20de%202022-05-23%2010-27-07.png?raw=true)
 
+------------------
+
 ![](https://github.com/Samael696/Proyecte-integrat/blob/main/Captura%20de%20pantalla%20de%202022-05-23%2010-29-12.png?raw=true)
 
+------------------
+
 ![](https://github.com/Samael696/Proyecte-integrat/blob/main/Captura%20de%20pantalla%20de%202022-05-23%2010-29-20.png?raw=true)
+
+------------------
 
 ![](https://github.com/Samael696/Proyecte-integrat/blob/main/Captura%20de%20pantalla%20de%202022-05-23%2010-29-51.png?raw=true)
